@@ -1,4 +1,4 @@
-Hey, fellas! It's Quandale Dingle here. I said a Deez Nuts joke to my grandfather, and he paralyzed me from the waist down. I put a pipe bomb in my sister's lunchbox. I poured vegetable oil all over my school hallways. I blasted the Nokia ringtone into Quanbingchilling, my goofy boofy friend's ears. My jiggity joggity ahh friend, Cornelious McCorny Cornwall, tried to eat deez nuts when I was 17. My uncle was wrestling in bed with Rootinertootiner Fatherless XXXV when I was two months old.
+Hey, fellas! It's Logobi-monki here. I said a Deez Nuts joke to my grandfather, and he paralyzed me from the waist down. I put a pipe bomb in my sister's lunchbox. I poured vegetable oil all over my school hallways. I blasted the Nokia ringtone into Quanbingchilling, my goofy boofy friend's ears. My jiggity joggity ahh friend, Cornelious McCorny Cornwall, tried to eat deez nuts when I was 17. My uncle was wrestling in bed with Rootinertootiner Fatherless XXXV when I was two months old.
 
 <!--
 **Logobi-monki/Logobi-monki** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
